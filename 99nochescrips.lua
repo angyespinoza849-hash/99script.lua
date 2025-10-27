@@ -1,0 +1,8 @@
+[[fly])
+[[Auto candy farm))
+[[auto sale dino kid))
+[[auto safe all kids))
+[[kill aura))
+)( speed))
+((auto cortar arboles))
+[[AFT not die))
